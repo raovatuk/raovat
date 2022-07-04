@@ -1,4 +1,4 @@
-# Cho thuê phòng trọ Tân Quy thuận tiện kinh doanh online 2021
+# Cho thuê phòng trọ Tân Quy thuận tiện kinh doanh online 2022
 
 
 
@@ -6,7 +6,7 @@ Phòng trọ cho thuê gần mặt tiền đường có lối đi riêng, vị t
 
 ![y-tuong-kinh-doanh-nho-tai-phong-tro](https://1.bp.blogspot.com/-FON-YZ2C5cg/YNsedJt_yFI/AAAAAAAAEis/Ilx0ZTFBpx4aCF9DZDp8dK86RHwvxB6CQCPcBGAsYHg/s16000/y-tuong-kinh-doanh-nho-tai-phong-tro.jpg)
 
-# Kinh doanh tại nhà năm 2021
+# Kinh doanh tại nhà năm 2022
 
 Kinh doanh tại chỗ trọ có thể tận dụng các ngườn hàng sẵn có, chất lượng tốt từ quê nhà hoặc là sử dụng đôi bàn tay khéo léo của bạn cùng với sự kết hợp công nghệ khéo léo là bạn có thể trở thành "ông chủ nhỏ". Bán đồ ăn vặt hiện nay đang là một trào lưu cực hot được nhiều bạn trẻ lựa chọn khởi nghiệp, đặc biệt là kinh doanh đồ ăn vặt online vừa không cần phải bỏ ra nhiều vốn lại vừa thuận lợi trong việc giới thiệu, buôn bán qua Internet. Đối tượng chủ yếu mà mọi người thường hướng tới là học sinh, sinh viên. Với vấn đề an toàn vệ sinh thực phẩm trở nên nóng như hiện nay ý tưởng mở cửa hàng bán thực phẩm sạch được coi là ý tưởng kinh doanh độc đáo và hiệu quả. Mở quán ăn hay cafe take away ngay tại nhà trọ. Đây là một ý tưởng kinh doanh không tồi cho những người có đam mê và tay nghề nấu ăn. Mô hình kinh doanh nhỏ lẻ, kiếm tiền tại nhà trọ này thực tế không quá khó, quan trọng là tay nghề, độ sạch sẽ và sự chịu khó đi tìm nguồn, lựa chọn những thực phẩm tươi sạch đảm bảo chất lượng an toàn thực phẩm. Bạn có thể mở hàng ăn sáng bán bún, phở, xôi, bánh mì,…
 
@@ -44,7 +44,7 @@ Thay vì mất thời gian lên nhiều đơn hàng riêng lẻ, bạn chỉ c�
 
 
 
-AhaMove là dịch vụ giao hàng mà dịch vụ [giặt sấy Quận 7](https://giatdi.com/) tin tưởng chọn lựa. Với lượng khách hàng giặt ủi đến từ khắp nơi tại TpHCM, việc duy trì đội ngũ giao hàng giặt ủi tận nơi là khá ‘cồng kềnh’ cho cửa hàng giặt ủi. Vì lẽ đó, một đơn vị giặt quần áo lấy ngay như ‘Giặt Đi’ chúng tôi phải chọn mặt gởi vàng AhaMove để bổ sung dịch vụ kinh doanh giặt là qua mạng.
+AhaMove là dịch vụ giao hàng mà dịch vụ [giặt sấy Quận 7](https://giatdi.blogspot.com/) tin tưởng chọn lựa. Với lượng khách hàng giặt ủi đến từ khắp nơi tại TpHCM, việc duy trì đội ngũ giao hàng giặt ủi tận nơi là khá ‘cồng kềnh’ cho cửa hàng giặt ủi. Vì lẽ đó, một đơn vị giặt quần áo lấy ngay như ‘Giặt Đi’ chúng tôi phải chọn mặt gởi vàng AhaMove để bổ sung dịch vụ kinh doanh giặt là qua mạng.
 
 Ở mỗi điểm dừng, bạn có thể thêm các thông tin của người nhận như họ tên, giá trị COD, SĐT, ghi chú.
 
